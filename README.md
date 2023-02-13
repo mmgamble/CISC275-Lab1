@@ -44,9 +44,11 @@ If you don't finish this during your scheduled lab time, that's ok! But we encou
 
 Edit for Lab Section 020L:
 - 
+Hey yall here is my edit
 
 Edit for Lab Section 021L:
 -
+Hey guys, my name is Sydney Segear and I'm the TA for section 021L! I'm looking forward to meeting you all today and working with you this semester!
 
 Edit for Lab Section 030L:
 -
